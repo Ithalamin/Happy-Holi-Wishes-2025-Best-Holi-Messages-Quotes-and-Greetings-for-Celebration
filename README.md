@@ -1,4 +1,4 @@
-[# Happy Holi Wishes 2025 – Best Holi Messages, Quotes, and Greetings for Celebration
+# [Happy Holi Wishes 2025 – Best Holi Messages, Quotes,Gift and Greetings for Celebration](https://wish.ithalamin.com)
 
 ## Introduction
 
@@ -35,7 +35,7 @@ Holi, the festival of colors, is celebrated with immense enthusiasm around the w
 
 - Sample Holi Greetings for Friends, Family, and Colleagues
 
-## Conclusion](
+## Conclusion
 
 Let’s spread the joy and love this Holi by sharing meaningful wishes, messages, and quotes with those who matter most. Celebrate Holi 2025 with colors and cheer!.
 
